@@ -1,1 +1,1 @@
-# Front UwU 1
+# Front
